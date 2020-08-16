@@ -4,4 +4,3 @@ I'm also passionate about __Open Source__, and find it to be a great way to give
 
 Apart from programming, I also love playing guitar and drinking coffee
 
-💻 + ☕ + 🎸 = 👌
